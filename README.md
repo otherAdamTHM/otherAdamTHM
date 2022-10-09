@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Project Lavo and Go-Karting Xtreme<br>💬 Ask me about Roblox LUA <br>🌐 I've got a website over at https://adamthm.com
+🔭 I work on random projects for no reason<br>💬 Ask me about Roblox LUA <br>🌐 I've got a website over at https://adamthm.com
 
 
 ## 🌐 Socials:
